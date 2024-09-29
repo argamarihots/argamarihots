@@ -18,7 +18,7 @@ I'm passionate about transforming data into insights! With a background in accou
 
 ### 📫 Get in Touch
 
-- 📧 Email: [argamarihots@gmail.com]
+- 📧 Email: argamarihots@gmail.com
 - 🌐 LinkedIn: [Arga Marihot](https://www.linkedin.com/in/argamarihots1/)
 
 ### 🎯 Let's Connect!
